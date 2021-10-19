@@ -2,7 +2,7 @@
 
 Wednesday
 
-Damon Hayes
+Damon Hayes, Hannah Gooding
 
 
 Contributed to by Jane Doe, Code Ninja
